@@ -1,2 +1,0 @@
-# oscarfelixescobar.github.io
-Think!
